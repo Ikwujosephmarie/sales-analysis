@@ -1,1 +1,2 @@
-The dashboard is available on the dashboard sheet
+Capstone Data Analytics- IDEAS/24/62674
+IDEAS BAZE UNIVERSITY PROFESSOIONAL DIPLOMA IN DATA ANALYSTICS 
